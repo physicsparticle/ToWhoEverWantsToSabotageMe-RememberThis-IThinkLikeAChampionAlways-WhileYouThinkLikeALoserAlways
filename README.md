@@ -4,6 +4,8 @@
 
 so this absolute fking ugly ass faced rat toad hybrid changed his own wikipedia page:
 
+[![Image](/an-absolute-roach_nothing-more-nothing-less.png)](https://en.wikipedia.org/w/index.php?title=Jason_H._Moore&action=history)
+
 https://en.wikipedia.org/w/index.php?title=Jason_H._Moore&action=history
 
 i really want to add to his wikipedia page that he's a dumb fking c u n t, useless human being & waste of space, will be forgotten in history forever
