@@ -6,7 +6,7 @@ so this absolute fking ugly ass faced rat toad hybrid changed his own wikipedia 
 
 [![Image](/an-absolute-roach_nothing-more-nothing-less.png)](https://en.wikipedia.org/w/index.php?title=Jason_H._Moore&action=history)
 
-I think what Jason really wanted and still wants, was and is a free participation trophy and free attention for work in ML/AI and bioinformatics that he knows he could never accomplish himself, ever ... an absolute ugly ass roach p u s s y that no one wants to fuck, a miserable and a sad excuse for a human or whatever he is.
+I think what Jason really wanted and still wants, was and is a free participation trophy and free attention for work in ML/AI and bioinformatics that he knows he could never accomplish himself, ever ... an absolute ugly ass roach p u s s y that no one wants to fuck, a miserable and a sad excuse for a human or whatever he is. an absolute t w a t that no one thinks of at 2 am, and that's funny and sad at the same time.
 
 https://en.wikipedia.org/w/index.php?title=Jason_H._Moore&action=history
 
