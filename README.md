@@ -1,4 +1,4 @@
-# ToWhoEverWantsToSabotageMe-RememberThis-IThinkLikeAChampionAlways-WhileYouThinkLikeALoserAlways
+# ToWhoEverWantsToSabotageMe-RememberThis-[IThinkLikeAChampionAlways](how-i-respond-to-this-literal-trash.png)-WhileYouThinkLikeALoserAlways
 
 # I always get what I want, it might take awhile, but I always get it.
 
