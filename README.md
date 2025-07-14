@@ -8,6 +8,8 @@ so this absolute fking ugly ass faced rat toad hybrid changed his own wikipedia 
 
 I think what Jason really wanted and still wants, was and is a free participation trophy and free attention for work in ML/AI and bioinformatics that he knows he could never accomplish himself, ever ... an absolute ugly ass roach p u s s y that no one wants to fuck, a miserable and a sad excuse for a human or whatever he is. an absolute t w a t that no one thinks of at 2 am, and that's funny and sad at the same time.
 
+im telling you, ive said it before, it may take 10 or 20 yrs for this to come but jason's in the closet, everyone hes attacking including you ... hes just secretly in love with, hes in love with paul, this is what's going on, i guarantee it, i swear i was a little suspicious when i was at penn
+
 https://en.wikipedia.org/w/index.php?title=Jason_H._Moore&action=history
 
 i really want to add to his wikipedia page that he's a dumb fking c u n t, useless human being & waste of space, will be forgotten in history forever
